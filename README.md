@@ -5,4 +5,5 @@ This will lead to long-term paid work if successful.
 
 Will also need of the team help to set up desktop and mobile support for the new token.
 
+
 Company is registered in UK.
